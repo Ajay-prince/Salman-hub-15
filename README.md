@@ -30,6 +30,8 @@
 * BMW
 * Duke
 salmon is bad boy really really bad boy.
+karthikeya is also the same as above declearaded
+karthikeya loves __________________.
 
 
 
